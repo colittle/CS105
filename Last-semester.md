@@ -1,0 +1,1 @@
+It is my last semester here at NAU. It has been a great run so far and I am very excited to move on and find a job. I wish the best for my fellow groupmates as college can be difficult at times, but we can all get through it.
